@@ -1,5 +1,6 @@
 # 💫 About Me:
 Working on data visualization, data strategy, financial data analysis, machine learning enthusiast.<br>-Interested in research based work.<br><br>
+E-mail: janaksitaula1@gmail.com
 
 
 ## 🌐 Socials:
